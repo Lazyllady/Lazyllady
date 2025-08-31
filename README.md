@@ -24,7 +24,6 @@ Currently, I'm studying **Computer Science** at Unity University and completing 
 ---
 
 ### 📌 Let’s Connect  
-[![LinkedIn]([https://www.linkedin.com/in/rahel-getachew-97a0ba354/](https://www.linkedin.com/in/rahel-getachew-97a0ba354/))
-
+https://www.linkedin.com/in/rahel-getachew-97a0ba354/
 ---
 
